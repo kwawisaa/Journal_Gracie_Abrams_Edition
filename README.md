@@ -12,4 +12,4 @@ https://ph.pinterest.com/pin/12947917675349959/
 
 https://ph.pinterest.com/pin/784189353909742667/
 
-You can view my project here: https://kwawisaa.github.io/Journal_Gracie_Abrams_Edition/
+You can view my project here: https://softfocuz.github.io/Journal_Gracie_Abrams_Edition/
